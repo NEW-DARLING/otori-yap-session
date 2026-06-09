@@ -11,3 +11,7 @@ idsmile is so PEAK ohmyhod i deadass cried while listening to that song its too 
 dude it worries me so much when 1 of my close friends goes quiet/dry or like. stops talking completely while we're interacting like☹️☹️☹️it makes me think IM the problem......ik its probably not becuz of me but most of the time i think it is,,,,whatever maybe imjust a loser ok
 
 this might sound petty as fuck bbut i hate when random people on pt that i do NOT know randomly walk up to make and try to join my conversation like GO away bru who tf are you
+
+deadass how it feels to type literally anything here becuz i know nobody looks at ts
+
+<img width="1500" height="1101" alt="1000026198" src="https://github.com/user-attachments/assets/690e6586-660a-4541-b7e3-4e2c99cf2b47" />
